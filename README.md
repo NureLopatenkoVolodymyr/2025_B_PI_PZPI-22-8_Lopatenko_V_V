@@ -1,1 +1,0 @@
-# 2025_B_PI_PZPI-22-8_Lopatenko_V_V
